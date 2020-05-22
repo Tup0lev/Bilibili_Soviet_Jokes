@@ -1,0 +1,2 @@
+# Bilibili_Soviet_Jokes
+收录有关哔哩哔哩的改编苏联笑话以防被橄榄
